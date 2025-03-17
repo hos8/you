@@ -1,3 +1,3 @@
-# you
+# You
 
-Before couple practice.
+Before a couple of practice sessions.
